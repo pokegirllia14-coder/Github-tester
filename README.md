@@ -1,7 +1,7 @@
 # Github-tester
-Madhouse of Creativity....Here Starsfall and here Darkness glows...
+Madhouse of Creativity....Here Stars fall and here Darkness glows...
 
-Sup, Name's St@Rf@!!, welocome to the Madhouse of Creativity, where memes and Rickroll rule.
+Sup, Name's St@Rf@!!, welocome to the Madhouse of Creativity, where Memes and Rickroll rule.
 
 Here fans of KOTLC, Percy Jackson, Harry Potter, and Supernatural Investigations will be rewarded
 
